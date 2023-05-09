@@ -4,7 +4,7 @@
 
 - Currently learning : **Apache Spark, Data Visualisation & Analysis, MongoDB**
 
-- Contact : - Discord **Aяĸнoѕ#8818**
+- Contact : - Discord **Aяĸнoѕ#0018**
 
 
 
